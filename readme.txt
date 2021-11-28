@@ -1,1 +1,1 @@
-Xin ch‡o anh em!
+Xin ch√†o anh em!
